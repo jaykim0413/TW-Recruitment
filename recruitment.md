@@ -12,4 +12,6 @@
 🎤🌟 Prearranged Pop Star every month \
 ⚔ Focused on cross-server events (EL, SVS, TC, etc.)
 
+👾 Join our discord for more information on transfers & our server!!!
+
 **Our Discord Lobby 👉 [wonderLand (MMMDCCXIV)](https://discord.gg/xAdsxtTg8q)**
