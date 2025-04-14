@@ -1,11 +1,17 @@
-# Welcome to s3714 wonderLand
+# WELCOME to s3714 wonderLand
 
 **TA1 Second Place** 🥈\
 **TA2 Champions** 🏆
 
-🗺️ International Server & Friendly Atmosphere for everyone \
+## WHY YOU SHOULD JOIN US
+
+🗺️ **International Server** \
+🥰 **Friendly Atmosphere** \
+🤝 **Experienced Leadership**
+
+## Server Details
+
 💪 Single Active Core Alliance \
-🤝 Experienced Leadership \
 🎁 Supply Contest @Reset +9 \
 🌽⛽️ Resource Ruins @Reset -2 & +12 \
 🤖 Daily Droid (w/ donation limit) @Reset -2 \
